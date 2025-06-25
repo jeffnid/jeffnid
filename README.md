@@ -7,3 +7,4 @@
 - 📫 How to reach me: geoffroy.nidiau@gmail.com
 - 😄 Pronouns: jeffnid
 - ⚡ Fun fact: I'bipolar disorder
+  C'est un grand pqs pour moi !
